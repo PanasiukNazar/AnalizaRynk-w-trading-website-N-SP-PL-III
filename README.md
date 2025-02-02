@@ -1,0 +1,1 @@
+# AnalizaRynk-w-trading-website-N-SP-PL-III
